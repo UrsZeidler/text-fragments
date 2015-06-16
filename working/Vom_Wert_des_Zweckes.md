@@ -14,7 +14,7 @@ Nun esse ich süßes salz, und wirklich, wie es ankling es schmeckt süß das Sa
 
 Das wir auch salziges mögen liegt an dem osmotischen Gleichgewicht, hier zeigt sich Zweck der angelegt ist in dem Verhältnis wie unser Körper und die Welt wechselwirken. Stoffwechselwirken.[3]  Wie Poper sagt gleichen wir 'gelößten Aufgaben' in dem die Manigfaltigen Probleme des Stoffwechelns und damit des Überlebens durch zweckhafte zusammen hänge gelöst sind. So kommt die bedeutung in diese Welt, als Zweck in einem Wirkungszusammenhang[1]. 
 
-"[..] wohl aber mit Unterscheidungsvermögen - so, daß beim Antreffen der physisch günstigsten Konfiguration die Kausalität ihre Einladung nich indifferent gegenübersteht, sonder ihr vorschub leistet und die Dargeboteneöffnung einschließ, um sich dann durch jeweils weitere Gelegenheiten ihr Bett zu Bahnen."[2] 
+"[..] wohl aber mit Unterscheidungsvermögen - so, daß beim Antreffen der physisch günstigsten Konfiguration die Kausalität ihre Einladung nicht indifferent gegenübersteht, sonder ihr vorschub leistet und die Dargeboteneöffnung einschließ, um sich dann durch jeweils weitere Gelegenheiten ihr Bett zu Bahnen."[2] 
 
 So schneck mir Zucker süß, und süß ist ein genehmens Gefühl und gerne nehme ich noch ein wenig, ist er doch die Sonne die auf die Pflanzen strahlt und im Zucker gebunden ist, die ich brauche, um selbst strahlen zu können. In diesem wirkungszusammenhängen manifestiert sich die Wirklichkeit. Die gemeinsame Welt als die Versammlung des Anwesenden. 
 
@@ -26,4 +26,5 @@ So sind die Wirkungzusammenhänge und Zwecke in die Wirklichkeit eingeschrieben.
    
  [1](http://www.deutschlandfunk.de/geschmack-suesses-und-salziges-folgen-getrennten-bahnen.676.de.html?dram:article_id=304418)  
  Nicholas Ryba 
+ 
         "Der eigentliche Geschmackssinn ist sehr einfach aufgebaut. Er dient dem simplen Zweck, einem Tier zu erkennen zu geben, welche Nahrung gut und welche schädlich ist. Wahrscheinlich sind deshalb die fünf Geschmacksempfindungen auch so eindeutig verdrahtet und müssen nicht erst erlernt werden."
