@@ -9,7 +9,7 @@ Eine hervoragende Position, unangeifbar, aber eine Position des Nichts "Warum is
 
 Sind wir nicht so rabiat, versuchen wir 
 
-Wenn ich die afferenten Nerven meinses Geschamckssytems derart tausche das die Neuronen im Nucelus solitarius Süß für Salzig Signalisieren und Salzig für Süß, so könnte man annehmen ich hätte eine neue, relative Alternative geschaffen. Ein valides Ergebnis das die relativität der Welt und unseres Standpunktes in ihr klar macht und woraus sich die absolute Freiheit folgern lässt und die ungültigkeit eines jeden Wertes was immer er bedeuten mag.
+Wenn ich die afferenten Nerven meinses Geschamckssytems derart tausche das die Neuronen im Nucelus solitarius Süß für Salzig Signalisieren und Salzig für Süß[1], so könnte man annehmen ich hätte eine neue, relative Alternative geschaffen. Ein valides Ergebnis das die relativität der Welt und unseres Standpunktes in ihr klar macht und woraus sich die absolute Freiheit folgern lässt und die ungültigkeit eines jeden Wertes was immer er bedeuten mag.
 Nun esse ich süßes salz, und wirklich, wie es ankling es schmeckt süß das Salz. Jedoch, es ist das selbe Süß, und nichts hat sich verändert. Es zeigt sich hier das Süß eine Eigenschaft meines Gehirns ist und immer schon war und bleibt. Einzieg sterben wüde ich warscheinlich schnell, ist das Salz süß, und bei ~200g letal[2]. 
 
 Das wir auch salziges mögen liegt an dem osmotischen Gleichgewicht, hier zeigt sich Zweck der angelegt ist in dem Verhältnis wie unser Körper und die Welt wechselwirken. Stoffwechselwirken.[3]  Wie Poper sagt gleichen wir 'gelößten Aufgaben' in dem die Manigfaltigen Probleme des Stoffwechelns und damit des Überlebens durch zweckhafte zusammen hänge gelöst sind. So kommt die bedeutung in diese Welt, als Zweck in einem Wirkungszusammenhang[1]. 
@@ -24,4 +24,6 @@ So sind die Wirkungzusammenhänge und Zwecke in die Wirklichkeit eingeschrieben.
 
    
    
- [1]()  
+ [1](http://www.deutschlandfunk.de/geschmack-suesses-und-salziges-folgen-getrennten-bahnen.676.de.html?dram:article_id=304418)  
+ Nicholas Ryba 
+        "Der eigentliche Geschmackssinn ist sehr einfach aufgebaut. Er dient dem simplen Zweck, einem Tier zu erkennen zu geben, welche Nahrung gut und welche schädlich ist. Wahrscheinlich sind deshalb die fünf Geschmacksempfindungen auch so eindeutig verdrahtet und müssen nicht erst erlernt werden."
