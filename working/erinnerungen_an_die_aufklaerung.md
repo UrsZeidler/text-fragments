@@ -1,7 +1,7 @@
 # Erinnerungen an die Aufklärung
 
 Die Zufälligkeit als das schickende Prinzip, das "in die Acht nehmen" und Aufnahme als empfangendes.
-Eine Hingabe als erinerung an die Aufklärung.
+Eine Hingabe als erinnerung an die Aufklärung.
 Es ist ein Apell an die Freiwillige Aufmerksamkeit.
 Die Zufällgkeit des Bemerkt werdens.
 Durch die Enscheidung des Aufnehmens wird der Zufall zum Schicksal.
