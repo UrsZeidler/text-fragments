@@ -2,12 +2,11 @@
 
 Was spricht gegen den Nihiliusmus ?
 
-Nichts. Es ist das selbe Nichts das für ihn spricht. Durch Nichts gebuden ist er wiederspruchsfrei, weill frei an Inhalten, dem Nichts wohnt gerade keine Quallität inne.
+Nichts. Es ist das selbe Nichts das für ihn spricht. Durch Nichts gebuden ist er wiederspruchsfrei, weil frei an Inhalten, dem Nichts wohnt gerade keine Quallität inne.
 So kann man nicht wiedersprechen. 
 
 Eine hervoragende Position, unangeifbar, aber eine Position des Nichts "Warum ist etwas und nicht vielmer Nichts ?" Hier schon verschwinet dise Position dahin wo sie immer war, im Nichts, denn es ist etwas.
 
-Sind wir nicht so rabiat, versuchen wir 
 
 Wenn ich die afferenten Nerven meinses Geschamckssytems derart tausche das die Neuronen im Nucelus solitarius Süß für Salzig Signalisieren und Salzig für Süß[1], so könnte man annehmen ich hätte eine neue, relative Alternative geschaffen. Ein valides Ergebnis das die relativität der Welt und unseres Standpunktes in ihr klar macht und woraus sich die absolute Freiheit folgern lässt und die ungültigkeit eines jeden Wertes was immer er bedeuten mag.
 Nun esse ich süßes salz, und wirklich, wie es ankling es schmeckt süß das Salz. Jedoch, es ist das selbe Süß, und nichts hat sich verändert. Es zeigt sich hier das Süß eine Eigenschaft meines Gehirns ist und immer schon war und bleibt. Einzieg sterben wüde ich warscheinlich schnell, ist das Salz süß, und bei ~200g letal[2]. 
@@ -24,7 +23,7 @@ So sind die Wirkungzusammenhänge und Zwecke in die Wirklichkeit eingeschrieben.
 
    
    
- [1](http://www.deutschlandfunk.de/geschmack-suesses-und-salziges-folgen-getrennten-bahnen.676.de.html?dram:article_id=304418)  
  Nicholas Ryba 
  
         "Der eigentliche Geschmackssinn ist sehr einfach aufgebaut. Er dient dem simplen Zweck, einem Tier zu erkennen zu geben, welche Nahrung gut und welche schädlich ist. Wahrscheinlich sind deshalb die fünf Geschmacksempfindungen auch so eindeutig verdrahtet und müssen nicht erst erlernt werden."
+ [1](http://www.deutschlandfunk.de/geschmack-suesses-und-salziges-folgen-getrennten-bahnen.676.de.html?dram:article_id=304418)  
