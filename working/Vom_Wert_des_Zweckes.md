@@ -2,7 +2,7 @@
 
 Was spricht gegen den Nihiliusmus ?
 
-Nichts. Es ist das selbe Nichts das für ihn spricht. Durch Nichts gebunden ist er widerspruchsfrei dem Nichts wohnt gerade keine Qualität inne. So kann man nicht widersprechen. 
+Nichts. Es ist das selbe Nichts das für ihn spricht. Durch Nichts gebunden ist er widerspruchsfrei. Dem Nichts wohnt gerade keine Qualität inne. So kann man nicht widersprechen. 
 
 Es ist nicht der gewaltige und radikale Nihilismus Nietsches von dem wir hier sprechen, der um Werte zu finden die totale Verneinung aller Werte radikal betreibt. "Um ein neues Heiligtum aufzurichten, muss man ein Heiligtum niederreißen, das ist das Gesetzt "[ni 1]
 Zur Verhandlung steht ein einfacher Nihilismus, dem es um nichts geht, der ohne Leidenschaft ist, ohne Anstrengung, bequem, und auch sicher, sicher weil egal. Dieses Egal ist seine Bestimmung.
@@ -24,10 +24,10 @@ Es ist die Welt die auf sich selbst wirkt, ist der Stoff aus dem wir gemacht sin
 So sind die Wirkungszusammenhänge und Zwecke in die Wirklichkeit eingeschrieben. Ihnen haftet keine Subjektivität an. In einer gänzlich verschiedenen Sphäre angesiedelt nehmen sie keine Rücksicht auf Subjektive Empfindungen denn das ist nichts was sie vermögen. 
 "Und nun wäre von einer Subjektivität der Natur bestimmt dies zusagen, daß sie nicht partikular und nicht willkürlich ist, und daß sie vor unseren privaten Wünschen und Meinen alle Vorteile des Ganzen vor dem Teilen, des dauernden vor dem Flüchtigen, des Gewaltigen vor dem Winzigen hat."[hj 147]
 
-
 "[..] wohl aber mit Unterscheidungsvermögen - so, daß beim Antreffen der physisch günstigsten Konfiguration die Kausalität ihre Einladung nicht indifferent gegenübersteht, sonder ihr Vorschub leistet und die dargebotene Öffnung einschließt, um sich dann durch jeweils weitere Gelegenheiten ihr Bett zu Bahnen."[hj 143] 
 
 
+"In jedem Zweck erklärt sich das Sein für sich selbst und gegen das Nichts."[hj 155]
 
 
 
@@ -36,11 +36,10 @@ Fürsorge für den Nachwuchs "Hier ist der Archetype alles verantwortlichen Hand
 
 "[..] das Neugeborene , dessen bloßes Athmen unwiedersprechlich ein Soll an die Umwelt richtet, nämlich sich seiner anzunehemen. [..] Da hier das Sein eines einfachen otischen Daseinden ein Soll für andere immanent und ersichtlich beinhaltet, [...][hj 235]"
 
-Jeder von uns ist damit ein Zeugnis von dieser kraftvollen Verantwortung mit der das Leben seinen Zweck unterstreicht. Gerade auch die Institutionelle Anerkennung dieser Verantwortung in Kinder Klappen, Heimen, Betreuungen zeigt die Universelle Anerkennung dieses Zwecks und dieses Anspruchs auf Dasein. Folglich tritt die Pflicht, als Verantwortung, als antagonistischer Wiederpart auf, die wir Erwachsenen übernehmen. Nur wir sind die in die Verantwortung gerufenen. Hans Johnas "Sieh hin und du weißt" können wir als Vorwegnahme des Spiegelneuronen Prinzips verstehen. Wir sind bestens ausgestattet die Bedürftigkeit in anderen zu erkennen, zu reflektieren und sie zu unseren eigenen zu machen. So gelingt es uns, ähnlich wie im Spiel oder dem Ritus, unser Subjekt zu entlasten[frei nach Buyn chun Han] und Teil eines größeren Systems zu sein, in diesem Falle eines "Sorge Systems". 
+Jeder von uns ist damit ein Zeugnis von dieser kraftvollen Verantwortung mit der das Leben seinen Zweck unterstreicht. Gerade auch die Institutionelle Anerkennung dieser Verantwortung in Kinder Klappen, Heimen, Betreuungen zeigt die Universelle Anerkennung dieses Zwecks und dieses Anspruchs auf Dasein. Folglich tritt die Pflicht, als Verantwortung, als antagonistischer Wiederpart auf, die wir Erwachsenen übernehmen. Nur wir sind die in die Verantwortung gerufenen. Hans Johnas "Sieh hin und du weißt" können wir als Vorwegnahme des Spiegelneuronen Prinzips verstehen. Wir sind bestens ausgestattet die Bedürftigkeit in anderen zu erkennen, zu reflektieren und sie zu unseren eigenen zu machen. So gelingt es uns, ähnlich wie im Spiel oder dem Ritus, unser Subjekt zu entlasten[frei nach Buyn chun Han] und Teil eines größeren Systems zu sein, in diesem Falle eines "Sorge Systems". Es entsteht ein generativer Vetrag der die Geschichte stiftet in der wir alle eine Heimat finden: Was bleibt sind die bunten Geschichten. 
+
 
 Diese Empfindsamkeit, durch die Reflektion im neuralen Substrat gestiftet, ist vielleicht auch der Quell der Hegelschen Dialektik.
-
-[hj 155]
 
 
 
